@@ -1,0 +1,2 @@
+# GlitchCoin
+GGGG
